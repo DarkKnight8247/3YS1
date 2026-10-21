@@ -1,3 +1,3 @@
-<h1>HATDOG mehwhehhee</h1>
+<h1>Midterm ni sya guys</h1>
 
 LMS DAW NI
